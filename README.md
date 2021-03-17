@@ -16,7 +16,7 @@ Here is a schedule of my typical school day:
 9. 4:00pm: shower  
 
   
-### My scedule for the lower half of my day:  
+### My schedule for the lower half of my day:  
  ---
 
 * 4:30pm: Watch tv  
