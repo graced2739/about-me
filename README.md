@@ -13,7 +13,7 @@ Here is a schedule of my typical school day:
 6. 1:00 pm: Play computer game    
 7. 2:00 pm: Exercise (sometimes)    
 8. 2:30 pm: Watch Tv    
-9. **4:00pm: shower ** 
+9. **4:00pm: shower** 
 
   
 ### My schedule for the lower half of my day:  
@@ -28,3 +28,4 @@ Here is a schedule of my typical school day:
 * **10:20 pm: Brush my teeth, wash my face**
 * **10:30 pm: Sleep** 
 
+Reviewed by Myat
